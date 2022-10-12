@@ -29,4 +29,4 @@ Need to replace your scooter battery? Take out the old one, and plug in the new.
 Keep your scooter lighter and driver longer with a lithium LiFePO4 battery.
 JB BATTERY LiFePO4 lithium ion scooter batteries are built tough, from the highest quality materials. They provide power you can rely on, for endless hours on your mobility scooter, elecric 3 wheel motor or electric wheelchair.
 
-Source: (EpoxyAdhesiveGlue)[https://www.epoxyadhesiveglue.com/]
+Source: [EpoxyAdhesiveGlue](https://www.epoxyadhesiveglue.com/)
